@@ -1,5 +1,4 @@
 
-
 <div align="center">
 
 <a href="https://www.beststrat.com">
@@ -11,7 +10,6 @@
 </a>
 
 </div>
-
 
 # 🚀 Strategy-to-Execution Toolkit
 
