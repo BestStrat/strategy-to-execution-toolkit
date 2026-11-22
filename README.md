@@ -3,7 +3,7 @@
 
 <a href="https://www.beststrat.com">
   <img
-    src="beststrat-logo.png"
+    src="LinkedIn Banner Update_.png"
     alt="BestStrat LLC Official Logo"
     width="320"
   />
