@@ -57,6 +57,28 @@ We connect the dots between **people, processes, and technology** to create prac
 
 ---
 
+---
+
+## 🎯 How Well Is Your Business Really Performing?
+
+Sometimes the biggest business challenges aren't obvious until you ask the right questions.
+
+The **BestStrat Business Execution Diagnostic** helps you take a closer look at how your organization approaches strategy, leadership, operations, technology, and execution.
+
+✅ Explore 25 practical business assessment questions.
+
+✅ Identify areas that may deserve greater attention.
+
+✅ Discover opportunities to improve efficiency, alignment, and business performance.
+
+✅ Take the assessment at no cost.
+
+### 👉 [Take the Free BestStrat Business Execution Diagnostic](https://forms.gle/7MwBX2jFeej9LpU38)
+
+**No obligation. Just an opportunity to look at your business from a different perspective.**
+
+---
+
 ## 🚀 Discover What BestStrat Can Do for You
 
 Whether you're looking to improve business operations, explore AI, automate processes, or bring a new idea to life, we'd love to learn more about your goals.
