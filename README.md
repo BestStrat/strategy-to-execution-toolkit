@@ -1,15 +1,17 @@
 
+
 <div align="center">
 
 <a href="https://www.beststrat.com">
   <img
     src="LinkedIn%20Banner%20Update_.PNG"
     alt="BestStrat LLC Official Banner"
-    width="650"
+    width="100%"
   />
 </a>
 
 </div>
+
 
 # 🚀 Strategy-to-Execution Toolkit
 
