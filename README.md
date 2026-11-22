@@ -49,7 +49,7 @@ Take a closer look at five important areas of business performance:
 
 **25 practical questions. Five business performance areas. One opportunity to discover what deserves your attention.**
 
-### 👉 [TAKE THE FREE BUSINESS EXECUTION DIAGNOSTIC](https://forms.gle/7MwBX2jFeej9LpU38)
+### 👉 [TAKE THE FREE BUSINESS EXECUTION DIAGNOSTIC](https://docs.google.com/forms/d/e/1FAIpQLSdQuGKEcj1kqQeqsHaRsNUlWmYe78V-P5dibmWgKvT1FkqTFA/viewform?usp=header)
 
 **Free to complete. No consulting commitment required.**
 
@@ -120,7 +120,17 @@ Let's explore the challenges you're facing and identify where practical improvem
 
 ### 👉 [EXPLORE BESTSTRAT SERVICES & DIGITAL SOLUTIONS](https://www.beststrat.com)
 
-### 👉 [TAKE THE FREE BUSINESS EXECUTION DIAGNOSTIC](https://forms.gle/7MwBX2jFeej9LpU38)
+### 👉 [TAKE THE FREE BUSINESS EXECUTION DIAGNOSTIC](https://docs.google.com/forms/d/e/1FAIpQLSdQuGKEcj1kqQeqsHaRsNUlWmYe78V-P5dibmWgKvT1FkqTFA/viewform?usp=header)
+
+---
+
+## 📬 Stay Connected with BestStrat
+
+Want to receive business improvement ideas, practical AI insights, and updates about our latest digital solutions?
+
+**Join our mailing list to stay informed about new tools, resources, and opportunities.**
+
+### 👉 [JOIN THE BESTSTRAT MAILING LIST](https://forms.gle/7MwBX2jFeej9LpU38)
 
 ---
 
